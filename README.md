@@ -1,1 +1,1 @@
-Homework №4 Decorative effects and elements. Vector graphics
+Homework №4 Decorative effects and elements. Vector graphics.
